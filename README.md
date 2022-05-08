@@ -17,3 +17,12 @@ https://bygdh.com,
 
 https://seseapp.top,
 https://app0001.top,
+
+※※草花A：https://aiceclub.com
+※※黑桃A：https://aicedspade.com
+※※方片A：https://aicediamond.com
+※※榨汁姬：https://zhazhijiava.top
+※※91色：   https://91sesexa.top
+※※妲己導航：https://dajidh2.xyz
+※※貴妃導航：https://guifeidh1.xyz
+※※色色手機應用大全：https://seseapp.top
